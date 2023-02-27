@@ -1,1 +1,0 @@
-# https-GenkiDog.github.io
